@@ -1,0 +1,2 @@
+# OpinionMining
+XİAOMİ MARKA CEP TELEFONU GERİ BİLDİRİMLERİNİN FİKİR ANALİZİ
